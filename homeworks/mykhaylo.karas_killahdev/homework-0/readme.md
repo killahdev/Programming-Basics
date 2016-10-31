@@ -1,1 +1,1 @@
-Homework is completed
+Homework has completed
